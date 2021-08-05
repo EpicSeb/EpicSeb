@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @EpicSeb
+- 👀 I’m interested in minecraft
